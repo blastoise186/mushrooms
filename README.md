@@ -27,6 +27,10 @@ Grey Scale Miky's Mush
 
 ![mushrooms](https://cdn.glitch.com/83a0eac0-68f0-4ef5-8b6f-31c89c81147d%2F563721301701951488.png?v=1561109584429)
 
+Miky's Mush on a Waffle Iron
+
+~[mushrooms](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSkHJIGK7qxP4L_OYeF_4bTzJOrur3no3oU4A&usqp=CAU)
+
 Real Mushroom
 
 ![mushrooms](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c2/Amanita_muscaria_%28fly_agaric%29.JPG/220px-Amanita_muscaria_%28fly_agaric%29.JPG)
