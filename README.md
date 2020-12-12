@@ -29,7 +29,7 @@ Grey Scale Miky's Mush
 
 Miky's Mush on a Waffle Iron
 
-~[mushrooms](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSkHJIGK7qxP4L_OYeF_4bTzJOrur3no3oU4A&usqp=CAU)
+![mushrooms](https://cdn.discordapp.com/attachments/723978260517748740/787103992597053460/images.png)
 
 Real Mushroom
 
